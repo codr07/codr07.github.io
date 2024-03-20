@@ -1,0 +1,6 @@
+- 👋 Hi, I’m CODR
+- 👀 Coding and music is in my blood.
+- 🌱 I’m Undergrad Statistics Student,Asutosh College,CU
+- 📫 [My Bio Link](https://codrss.bio.link)
+- 🦾🔴 Communist.
+- ⚡ Beatboxer.
